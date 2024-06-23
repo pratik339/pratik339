@@ -1,6 +1,6 @@
 ![logo](https://media.licdn.com/dms/image/D4D16AQF44501lJU_Gw/profile-displaybackgroundimage-shrink_350_1400/0/1703885798905?e=1724284800&v=beta&t=FVmtNW2g9skMhAycbBp24RXNTs4puDNO_YlgBB5dMvw)
 # 💫 About Me:
-🔭 I’m currently Studying Electronics and Communication Engineering at Gujarat Technological University<br>📫 How to reach me pratikghosh339@gmail.com and also WhatsApp at +91 93305 82359<br>⚡ Fun fact though i am studying engineering but Math isn't my fav subject<br>
+🔭 I’m currently Studying Electronics and Communication Engineering at Gujarat Technological University<br>📫 How to reach me pratikghosh339@gmail.com and also WhatsApp at +91 78746 06987<br>⚡ Fun fact though i am studying engineering but Math isn't my fav subject<br>
 
 
 ## 🌐 Socials:
